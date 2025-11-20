@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @ KALLURI SURENDRA REDDY
 - 👀 I’m interested in Software engineering
-- 🌱 I’m currently pursing  is be btech cpmputer science engineering kalasalingam academy of research and education 
+- 🌱 I’m currently Graduated  is be btech cpmputer science engineering kalasalingam academy of research and education 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
